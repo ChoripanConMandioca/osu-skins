@@ -4,7 +4,7 @@ These are the skins I use the most
 ![](https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg)
 
 # [azer -ite](https://hyp.s-ul.eu/IpNpA6di)
-![](https://i.imgur.com/T9pyY3c.png)
+![](https://i.imgur.com/K7Lu4BZ.png)
 
 # [BlooXoo](https://dain.cafe/xoo/-_BlooXoo_-.osk)
 ![](https://i.imgur.com/em4cCTB.png)
