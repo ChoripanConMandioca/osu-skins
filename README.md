@@ -18,6 +18,9 @@ These are the skins I use the most
 # [FREEDOM DiVE↓](https://drive.google.com/drive/folders/1NytOsVVuJoYG4d57GZcbkggR65EkP6S9?usp=sharing)
 ![](https://i.imgur.com/pGHIQHt.png)
 
+#[Mrekk 2.0](https://skins.osuck.net/index.php?newsid=1911)
+![](https://skins.osuck.net/uploads/posts/2021-02/1613753031_screenshot9227.jpg)
+
 # [JesusOmega『Planets』](https://skins.osuck.net/index.php?newsid=1489)
 ![](https://skins.osuck.net/uploads/posts/2020-07/1594283495_4.jpg)
 
