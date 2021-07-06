@@ -33,5 +33,5 @@ These are the skins I use the most
 # [- # re;owoTuna v1.0-1.1 # -](https://skins.osuck.net/index.php?newsid=1552)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
 
-# [splentys](https://drive.google.com/file/d/1V_ka8ieyILiO2V-KGlRqO8jIDQHI46ch/view?usp=sharing)
+# [splentys](https://drive.google.com/file/d/1u1D85bhvVgyhCrwzsHKat1XkOr5StjP7/view?usp=sharing)
 ![](https://i.imgur.com/v3KCofU.png)
